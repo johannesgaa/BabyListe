@@ -8,7 +8,6 @@ Dinge die wir noch brauchen:
 * Tragetuch 
 * Klamotten ab Gr 62
 * Spielzeug
-* Kinderwagen
 * Kinderwagen Einlage, Fell, dünne matratze + bezug
 * Windelmülleimer
 * Spielbogen
